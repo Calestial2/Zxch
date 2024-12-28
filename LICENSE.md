@@ -87,9 +87,8 @@ By using, modifying, or distributing Zxch OS, you agree to the terms and conditi
 
 For any questions or requests for commercial use or licensing inquiries, please contact:
 
-Calestial Ashley  
-[Your Email]  
-[Your Website]  
+Calestial Ashley: 
+calestialashley@gmail.com 
 
 ---
 
